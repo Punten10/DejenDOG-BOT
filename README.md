@@ -43,5 +43,8 @@ Daftar Disini [DejenDOG BOT](https://t.me/DejenDogBot?start=92f32f2f)
 ```
 ![image](https://github.com/Punten10/DejenDOG-BOT/assets/64400801/6c5dc4aa-b09c-4347-a21d-c1fe9a17c166)
 # SUPPORT ME
+Thanks For Reference andraz404
+
 https://sociabuzz.com/surrealflux/tribe
+
 [<img src="https://img.shields.io/badge/Telegram-%40Me-orange">](https://t.me/zuiredrop)
