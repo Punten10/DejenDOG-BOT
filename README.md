@@ -3,6 +3,7 @@ AUTO Tap-Tap &amp; AUTO UPGRADE BOOST
 
 ## Register
 Daftar Disini [DejenDOG BOT](https://t.me/DejenDogBot?start=92f32f2f)
+- Free 300.000 $HIT
 
 ## Fitur
 ```bash
